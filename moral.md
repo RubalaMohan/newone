@@ -1,4 +1,4 @@
-                            Moral of the story..!!!
+                            Moral of the story
 
 Life will always have problems and pressures, like the boiling water in the story. 
 
